@@ -34,5 +34,3 @@ I specialize in building scalable, reliable, and automated infrastructure soluti
 📞 **Phone:** +91 9953113935  
 
 ---
-
-Let me know if you’d like to tweak anything further!
